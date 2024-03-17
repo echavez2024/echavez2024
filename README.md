@@ -1,5 +1,5 @@
 
-![Presentación Empresa Dinámica Azul Blanco ](https://github.com/echavez2024/echavez2024/assets/163677739/f3d16174-a332-4ec6-a271-031e10d834aa)
+![redes sociale](https://github.com/echavez2024/echavez2024/assets/163677739/da6976c6-0200-4d44-8876-98fea37ebb67)
 
 - 👋 Hola soy, @echavez2024
 - 👀 Estoy interesado en aprender GitHub
